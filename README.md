@@ -13,15 +13,15 @@ https://drive.google.com/drive/folders/1P7lfyAS96ELx8RoixPajP9oibmp3_Z32
 
 ## Aiffel Datathon
 
-세션1 패들릿
+- 세션1 패들릿
 https://padlet.com/kim0br0309/q0qivff1137tmu6u
-세션2 패들릿
+- 세션2 패들릿
 https://padlet.com/kim0br0309/jyqkt21j3qjrbweu
-세션3 패들릿
+- 세션3 패들릿
 https://padlet.com/kim0br0309/ko14nmxiyehr0grs
-세션4 패들릿
+- 세션4 패들릿
 https://padlet.com/kim0br0309/kbwbxzuw2p8p74wd
-세션5 패들릿
+- 세션5 패들릿
 https://padlet.com/kim0br0309/nsyzdlkecdr6vo21
 
 
